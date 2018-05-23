@@ -292,3 +292,87 @@ akatar dhyan tumhari magn rehne ki.
 
 
 ----
+----
+---
+
+desh jab gulam tha, kranti ki pukar uski thi
+desh jab azad hui toh nyay ki kuhar uski thi.
+desh jab hara toh sat ki lalkar uski thi
+desh jab jeeta toh khushiyon mein malhar uski thi.
+
+karodo dilon mein jalne wali mashaal jiski thi
+
+woh rastr kavi, sabd bhedi, samartyan, jai jai kal jiski thi
+
+
+Neeraj ji ki kavita
+Atman ke saundarya ka shabd roop hai kavya, manav hona bhagya hai kavi hona saubhagya
+
+----
+
+yadi aap kavi hain rachna kar hai, toh likha koi vikalp nhi hota, aatma ki pukar hoti hai
+apka vajoot hoti , aapki pehchan hoti hai.
+
+zinda rehne ke liye jis tarah sans lene ki zaroorat hoti hai,
+usi tarah ek rachanakar ke liye likhna.
+
+
+azadi ka hawan chal rha tha.
+
+chal raha mahabharat ka run, jal raha dharti ka suhag.
+phat kurushetra mein khel rahi, nar ke bheetar ki kutil aag.
+
+
+anek badliyon ke bawazood, dinkar ki kalam ki dhar nhi badli.
+
+thak kar bait gaye kya bhai? manzil dur nhi hai
+
+
+padai mein tez they
+
+maithili, bangla, urdu, sanskrit aur angrezi bhasa ki unhone padhai kari.
+Ma hindi ka ashirwad toh un par sadaiv hi tha.
+
+weh 3 baar rajya sabha mein jeet kar aye.
+
+unhe chin se haar, nehru ki foregin policy galat hone ke wajah se lagi.
+
+unho nehru ke khilaf likhna
+
+re rokh yudhistr ko na yahan, jaane de unko swarg dheer.
+par phira hume gandiv gadha, lauta de humko arjun, bheem veer.
+
+keh de shankar se aaj kare veh pralay nritya phir ek baar.
+saare bharat mein gunj uthey har har bam bam ka maho uchar.
+
+isme congress ko ye laga ki dinkar ne Nehru ji ko hi yudhistr kaha hai.
+
+
+phir unhone apne luyten delhi ke khilaf b likha
+mein bharat ke reshmi nagar mein rehta hun
+
+he left delhi and quit from rajya sabha and returned to bhagalpur as vice chancellor.
+
+
+unhone tirupati mein rashimirathi ka paat kiya aur wahan bahut bheed ikahti ho gayi.
+phir unki mrutyu rameshwaram mein ho gayi
+
+
+balkavi bairagi ne kaha
+
+kya kaha dinkar doob gaya, dakshin ke dur dishchal mein?
+kya kaha ki ganga sama gayi rameshwar ke tirath jal mein
+kya kaha ki nathpati namit hua tirupati ke ghani pahadon par
+kya kaha ki utar thitak gaya dakhsin ke dhol nagadon par
+
+weh rajniti ka kush ankush, wah agat anay ka ripu vishesh
+rajiv nayan weh karunakar, weh sanskritiyon ka arth slesh
+veh moond gya apni aakhen kya kehte ho woh chala gaya?
+
+adh ghayal mata hindi ko weh bhand hichkiyan rula gya
+marta hai keval mrutya manuj, veh amar kahan mar sakta hai
+hum kandha tumko de na sake hum shrad tumhara kar na sake
+
+jo shunya banaya hai tumne, til bhar hum usko bhar na sake
+par sambhav ho toh suno aaj yeh is vanshaz ki vaani hai
+sanskar tumhara bol rha hai gira amar kalyani hai 
